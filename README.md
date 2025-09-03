@@ -1,4 +1,3 @@
-![722747](https://user-images.githubusercontent.com/76500727/220073937-80d19bac-7c16-4661-ad69-1c31e6d7d084.jpg)
 </br>
 <h3 align="center">
   Hello there, my name is Leo!
